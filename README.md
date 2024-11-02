@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AsaNix0412
+- 👀 I’m interested in Trojans and Viruses
+- 🌱 I’m currently learning hacking *not for malicious intent*
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: Contact my email ba8065407@gmail.com
+- 😄 Pronouns: Gedagedigedagadaoh
+- ⚡ Fun fact: AAAA
